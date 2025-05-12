@@ -1,5 +1,1 @@
-# DusanBears
-hahahahahahahaha
-hohhohohooohho
-heehehehehehe
-hamBurger 
+# NC DINOS 
